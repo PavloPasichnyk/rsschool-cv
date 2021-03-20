@@ -2,7 +2,7 @@
 ## * Contact: * ##
 * +48884079516
 * [LinkedIn](https://www.linkedin.com/in/pavlo-pasichnyk-040169185/)
-* (Instagram) (https://www.instagram.com/pwpsnk/?hl=pl)
+* 
 ## Summary ##
 __ I want to stay mental healthy. Stable internet connection. Working independently. And of course, money, more money (for paying bills) __
 ## My skills ## 
